@@ -88,7 +88,7 @@ Sangvish [Udemy Clone Script](https://sangvish.com/udemy-clone/) is a robust and
 If you want to enter the eLearning sector and build a platform that encourages learning and advancement, Sangvish Udemy Clone is the ideal solution to get you started.
 
 
-Discover the ultimate eLearning platform – explore our website now! - https://sangvish.com/udemy-clone/
+Discover the ultimate eLearning platform – click to watch our **LIVE DEMO** now! - https://sangvish.com/udemy-clone/
 
 **Book a Free Consultation via,**
 
